@@ -7,3 +7,7 @@ bilibili@Yixuan Program Youtube@Yixuan Programming 西瓜视频@yixuan0513
 如果你喜欢我的课程请为我的课程连接三联！！
 并给这个项目点一个star！！
 谢谢！
+我的账号连接：
+ytb:https://www.youtube.com/channel/UC2S3iyy43zysJhzCAQu_WDw
+
+bilibili: https://space.bilibili.com/2117585632?spm_id_from=333.1007.0.0
